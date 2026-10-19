@@ -3,7 +3,7 @@
 **Meta title:** Breathizen Spray at Work: Discreet Breath-Care Habits
 **Meta description:** Explore Breathizen Spray for workplace, with practical breath-care tips, label checks, realistic expectations, and guidance on when to seek dental advice.
 
-<h2><div style="border:2px solid #f59e0b;background:#fff7ed;padding:18px 20px;margin:18px 0;border-radius:10px;text-align:center;"><h2>
+<div style="border:2px solid #f59e0b;background:#fff7ed;padding:18px 20px;margin:18px 0;border-radius:10px;text-align:center;">
   <p style="margin:0 0 8px;font-weight:700;color:#9a3412;">Breathizen Spray — Check current product details before you decide.</p>
   <a href="https://breathizen.cc/" rel="nofollow sponsored" style="display:inline-block;background:#f59e0b;color:#111827;font-weight:700;text-decoration:none;padding:12px 22px;border-radius:6px;">Check The Price</a>
 </div>
@@ -82,7 +82,7 @@ Review the current label and the seller's official product information, includin
 
 A practical approach to workplace combines good daily oral care, realistic expectations, and careful review of product information. Breathizen Spray may be worth researching if a portable breath-freshening option fits your preferences, but the exact formula, directions, and suitability must be confirmed from the current packaging and official information. Choose based on transparent details rather than promises, use the product only as directed, and consult a dental professional if bad breath persists.
 
-<h2><div style="border:2px solid #f59e0b;background:#fff7ed;padding:18px 20px;margin:18px 0;border-radius:10px;text-align:center;"><h2>
+<div style="border:2px solid #f59e0b;background:#fff7ed;padding:18px 20px;margin:18px 0;border-radius:10px;text-align:center;">
   <p style="margin:0 0 8px;font-weight:700;color:#9a3412;">Breathizen Spray — Check current product details before you decide.</p>
   <a href="https://breathizen.cc/" rel="nofollow sponsored" style="display:inline-block;background:#f59e0b;color:#111827;font-weight:700;text-decoration:none;padding:12px 22px;border-radius:6px;">Check The Price</a>
 </div>
